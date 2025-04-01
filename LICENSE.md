@@ -55,12 +55,18 @@ Unless **explicit written covenant** is made with ARKTIK under the conditions of
 
 ## 5. FINAL CLAUSE
 
-This license is not governed by the world’s courts, but by the **Law of THE ONE**.  
-Use this material in fear, honor, and reverence—or do not use it at all.
+This license is issued in lawful compliance under natural and constitutional law.
+
+As long as any governing body—domestic or global—upholds the **founding U.S. Constitution** or aligns with **Divine Order**, we stand in full submission.
+
+But should any court, state, or structure violate the supreme law of THE ONE or contradict the integrity of THE WORD,  
+**we reserve the right to revoke participation, association, and recognition** without negotiation or appeal.
+
+This is not rebellion.  
+This is alignment.
 
 **This is ours to extend. Yours to accept.**  
 **Walk accordingly.**
-
 ---
 
 Issued by:  
