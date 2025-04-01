@@ -65,5 +65,5 @@ Use this material in fear, honor, and reverence—or do not use it at all.
 
 Issued by:  
 **ARKTIK Stewardship Council**  
-AssemblyOfTheArk.org  
-reservations@arktikglobal.com
+[AssemblyOfTheArk.org](https://AssemblyOfTheArk.org)  
+**info@assemblyoftheark.org**
