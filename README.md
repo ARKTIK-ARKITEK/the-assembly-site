@@ -10,11 +10,6 @@
 This is not a movement.  
 This is a **return**—to rhythm, to reverence, to order.
 
-THE ASSEMBLY exists to restore what was hidden, rejected, or misunderstood.  
-To awaken a people in exile.  
-To revive the rhythm written from the beginning.  
-And to walk once again in alignment with THE ONE.
-
 We offer no reinvention—only restoration.  
 We seek no crowd—only the called.  
 We speak no compromise—only covenant.
